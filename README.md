@@ -1,0 +1,2 @@
+# RYZEN
+троян ryzen
